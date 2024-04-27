@@ -41,7 +41,7 @@ en esa tierra fertil plantarás tu semilla,
 la tendras que regar con agua y tratarla con mucho amor,
 y nunca, pero nunca, la arranques de raiz si realmente
 quieres ver florecer esa bella flor de la que tanto anelas ver.
-Ahora, Chuquillo, dame la mano que he encontrado una tierra fertil para ti"
+Ahora, Chiquillo, dame la mano que he encontrado una tierra fertil para ti"
 
 Y entonces, le ofreci mi mano, la estrechó con fuerza, y lo acompañe
 hacia esa tierra fertil agarrados de la mano
